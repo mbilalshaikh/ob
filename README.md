@@ -12,3 +12,6 @@ week 2 : https://drive.google.com/open?id=0BxOPPpbcYMwzcGlBUXFHLW1SZkU
 
 Slides 1 : https://drive.google.com/open?id=0BxOPPpbcYMwzeFlPMjJFejMtcUE 
 Slides 2 : https://drive.google.com/open?id=0BxOPPpbcYMwzY1VENEdwMXA4LXM
+
+
+[Mid Term Results 2017] (https://drive.google.com/open?id=1QkuzYtVwGqI9t6ZMOmuGYd2Qo9UkYr1LQj_HPgAWoDg)
